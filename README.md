@@ -1,6 +1,6 @@
 ### Welcome to Timothy's github 👋
 
-I am really into learning, reading, coding, sharing, and challenging myself. 
+I am Timothy who's really into learning, reading, coding, sharing, and challenging myself. 
 
 Most importantly, I love smiling and bringing happiness. Life is hard, but we can't wait until life isn't hard anymore before we decide to be happy. 
 
